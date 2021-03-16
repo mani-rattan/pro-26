@@ -1,1 +1,1 @@
-# pro-26
+Take 2 slices of bread and put some amount of oil and then move onto the ingredients. For that take some potatoes, peel them and mash them. take some onion and cut them into small pieces and now mix them all with salt, cumin seeds and carom seeds. Then heat the sandwich maker and then place the sandwich in it. When it is ready then enjoy it with your family :)
